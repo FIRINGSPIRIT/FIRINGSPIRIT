@@ -11,4 +11,4 @@ extra.
 - Let me know if there's somebody problematic or something in my atabook
 -  DON'T DRAG ME INTO DRAMA THAT I'M NOT INVOLVED IN PLEASE OH MY GOD
 - I sign atas! I'll check githubs and whatnot and I'll sign it right away :)
-- I ship **shadowvanilla**, so iwec if you don't like it! I don't force it on others, so please don't start arguing about the ship with me.
+- I ship **shadowvanilla** and smc x all the beasts in particular, so iwec if you don't like it! I don't force it on others, so please don't start arguing about the ship with me.
